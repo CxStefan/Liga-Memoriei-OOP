@@ -14,4 +14,6 @@
 
 
 
+
+
 © [2024] [Liga Memoriei/Cumpanasu Stefan]. All rights reserved. Unauthorized reproduction, distribution, or modification of this game is strictly prohibited and may result in legal action. The game, its design, graphics, and content are the intellectual property of [Liga Memoriei/Cumpanasu Stefan].
